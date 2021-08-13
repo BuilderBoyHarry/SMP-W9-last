@@ -1,2 +1,2 @@
 # Licence
-World 9 (1d BET) by BuilderBoyHarry is licensed under Attribution-ShareAlike 4.0 International. To view a copy of this license, visit http://creativecommons.org/licenses/by-sa/4.0/
+World 9 (last) by BuilderBoyHarry is licensed under Attribution-ShareAlike 4.0 International. To view a copy of this license, visit http://creativecommons.org/licenses/by-sa/4.0/
